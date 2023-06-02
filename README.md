@@ -16,7 +16,7 @@
 
 **联系我们**
 如果您有任何问题或建议，欢迎通过以下方式联系我们：
-* 邮箱：mindthrive-dao@gmail.com
+* 邮箱：mindthrive.dao@gmail.com
 * Twitter：@MindThriveDAO
 
 我们期待您的参与，让我们一起为提升全球华人的心理健康做出贡献！
